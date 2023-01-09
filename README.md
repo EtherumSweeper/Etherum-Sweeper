@@ -13,5 +13,5 @@ If u wish to purchase this amazing product goto
 https://picwarior381.mysellix.io/product/63ba045a8a04f
 The discord is 
 https://discord.gg/xkkhUw9Thv
-Say D5 Sent you!
+Say D5 Sent you. If u buy it, in the vouch collum put D5
 ![alt text](https://cdn.discordapp.com/attachments/1059606764003274838/1061271391967658034/image.png)
